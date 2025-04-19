@@ -1,6 +1,6 @@
 # Regarding Skin Copying – Pony Town (DNC Notice)
 
-Hi **ScaraLiao**,  
+Hi **@ScaraLiao**,  
 This is a respectful but direct message about your Pony Town skin.
 
 Your bio says:
